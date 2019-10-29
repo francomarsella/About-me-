@@ -1,7 +1,4 @@
 Franco Marsella 
-6 burton road larchmont ny
-914-275-3354
-Frm223@Lehigh.edu
 Education
 Lehigh University College of Business 
 Mamaroneck High School 
